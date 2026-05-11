@@ -1,4 +1,4 @@
-#  
+#  blue lock rivals professional Script offers the most advanced blue lock rivals Script, with instant win and infinite resources. Perfect for
 
 
 
